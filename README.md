@@ -12,4 +12,4 @@ marcos.monteiro.ramos@escola.pr.gov.br
 
 @_marcos_monteiro_08
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgifdb.com%2Fnaruto&psig=AOvVaw07cP72dZC92JtHilM-MJRW&ust=1690650799384000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCPCmt5fzsYADFQAAAAAdAAAAABAE)
+![](<img data-tracking="naruto-funny-angry-face-brtbtk2v9cfk5jd8" src="/images/high/naruto-funny-angry-face-brtbtk2v9cfk5jd8.gif" class="post-image trackable" alt="Naruto Funny Angry Face GIF">)
