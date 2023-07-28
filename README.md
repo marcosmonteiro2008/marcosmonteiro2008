@@ -12,4 +12,4 @@ marcos.monteiro.ramos@escola.pr.gov.br
 
 @_marcos_monteiro_08
 
-![](<img data-tracking="naruto-funny-angry-face-brtbtk2v9cfk5jd8" src="/images/high/naruto-funny-angry-face-brtbtk2v9cfk5jd8.gif" class="post-image trackable" alt="Naruto Funny Angry Face GIF">)
+![](https://media.tenor.com/nhdecwMmRjsAAAAC/naruto-jutsu.gif)
