@@ -12,4 +12,4 @@ marcos.monteiro.ramos@escola.pr.gov.br
 
 @_marcos_monteiro_08
 
-![descrição do GIF](link GIF do Tenor)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgifdb.com%2Fnaruto&psig=AOvVaw07cP72dZC92JtHilM-MJRW&ust=1690650799384000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCPCmt5fzsYADFQAAAAAdAAAAABAE)
